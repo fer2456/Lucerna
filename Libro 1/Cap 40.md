@@ -33,9 +33,8 @@ fantasmas que con ellos:
 Escucharme. Pero nunca escuchan... nunca entienden... Solo saben ladrar.
 
 Mira los cuerpos temblorosos bajo sus pies. Y en ese instante lo
-percibe: las cadenas. Siempre estuvieron atados, igual que él. Ni
+percibe: las cadenas. Siempre estuvieron atados. Ni
 siquiera eran libres de no ladrar.
 
-Eron aparta la vista, incapaz de soportar el espejo que acaba de romper
-con sus propias manos. Camina de nuevo, más vacío que antes.\
+Eron aparta la vista. Camina de nuevo, más vacío que antes.\
 El silencio que quería al fin lo acompaña, pero es un silencio podrido.

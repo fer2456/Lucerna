@@ -56,7 +56,7 @@ Se despidieron mientras Dahlia salía del aula. Eron siguió sonriente, con una 
 
 -----
 
-**12:00 AM --- Aula K-02**
+**12:00 PM --- Aula K-02**
 
 Los compañeros entraron al salón. El sumbido silente que había acompañado a la pareja se vió interrumpido por adolescentes carcajeando; el tufo de sudor puberto inundó el aula mientras todos tomaban asiento. Eron se sentó, buscando con la mirada a Korin para distraerse, sabiendo que su mente se ocuparía de reflexionar en lugar de atender la clase.
 
@@ -105,6 +105,7 @@ Eron volteó avergonzado, contemplando su mochila únicamente conteniendo una pl
 --- Igual...
 
 -----
+
 **2:00 PM --- Salida**
 
 Eron acompañó a Korin a la salida, previo a buscar a Elyra. Este último se veía desanimado, cabizbajo.
@@ -135,7 +136,7 @@ El padre de Korin llegó. Ambos se despidieron visiblemente aliviados.
 
 --- Todo irá bien, prometo ayudarte.
 
---- Ojalá no me pongan peros. Te veo mañana. 
+--- Ojalá no me pongan peros. Te veo mañana.
 
 Ambos amigos se tomaron de la mano en un saludo cálido.
 
@@ -156,6 +157,7 @@ Ría lo ve, camina a su lado.
 --- Oh, lo siento, no te ví para nada. --- DIjo Eron con la vista al frente.
 
 Ría hizo una mirada boba. Siguió acompañándolo.
+
 --- Es un idiota, ¿no? Siempre llamando la atención así.
 
 --- Ya no lo hace tan seguido. A veces pienso que es envidia.
@@ -179,9 +181,10 @@ Ría tomó una pausa breve mientras lo veía.
 --- Creer en él, aunque seas el único.
 
 ---
-**3:00 PM --- Casa Eldrion:  Taller**
 
-La tarde había avanzado, ambos hermanos caminaban con una mezcla de prisa y alivio. 
+**3:00 PM --- Casa Eldrion: Taller**
+
+La tarde había avanzado, ambos hermanos caminaban con una mezcla de prisa y alivio.
 
 Se podía escuchar movimiento urbano, no muy habitual por su zona. Vehículos con el escudo de la facción se hacían visibles: una carrocería grande, cuadrangular, sin piloto, completamente automatizada para llevar a los elementos públicos anti-delitos, pertenecientes a la facción.
 
@@ -225,7 +228,7 @@ Ambos llegaron a su entrada, y antes de abrir la puerta, escucharon una sirena a
 
 Uno de los vehículos anti-delitos se aproximó.
 
-Bajaron 3 servidores y se acercaron a los Eldrion. 
+Bajaron 3 servidores y se acercaron a los Eldrion.
 
 Elyra se ocultó levemente detrás de su hermano, asustada.
 
@@ -265,7 +268,7 @@ Vio a su padre, dormido, roncando con fuerza.
 
 *Menos mal*
 
---- HEY, Despierta. Vienen a hablar contigo. 
+--- HEY, Despierta. Vienen a hablar contigo.
 
 Erasen no respondía, seguía en sueño profundo
 
@@ -315,7 +318,7 @@ Los agentes patrulleros continuaron al habla.
 
 --- Está bien, no pasa nada, yo me encargo...
 
-Eron vuelve con los patrulleros. 
+Eron vuelve con los patrulleros.
 
 --- ¿Una cámara? No me comentaron nada los niños
 
@@ -330,7 +333,8 @@ Uno de los hombres se le acercó.
 ---Oh... mierda...
 
 ---
-**4:00 PM  --- Taller**
+
+**4:00 PM --- Taller**
 
 Eron estaba sentado, con Elyra de pie junto a él, y los uniformados examinando el Dron dañado.
 
@@ -342,7 +346,7 @@ Eron estaba sentado, con Elyra de pie junto a él, y los uniformados examinando 
 
 --- Entiendo, Permítame hablar con mi hijo por favor
 
-El oficial le dá el teléfono a Eron. Este, sin subir la cabeza, y mirando a lo lejos el dron, toma el  celular.
+El oficial le dá el teléfono a Eron. Este, sin subir la cabeza, y mirando a lo lejos el dron, toma el celular.
 
 --- ¿¡Cómo se te ocurre?!, se supone que no se iban a meter en problemas. Siempre lo mismo contigo
 
@@ -368,7 +372,7 @@ Eron apretó los dientes, y presionó sus dedos con la carcasa del teléfono.
 
 --- Igual...
 
-Eron devuelve a el teléfono a los patrulleros, estos empiezan a salir del domicilio. 
+Eron devuelve a el teléfono a los patrulleros, estos empiezan a salir del domicilio.
 
 --- Disculpe, ¿me puedo quedar con el Dron?
 
@@ -388,7 +392,7 @@ Ambos volvieron a la casa, Eron se dirigió al taller.
 
 --- Perdón, pero entré en pánico. No es que sea una muy buena señal el ver a una patrulla del órden acercándose.
 
---- Entiendo. Pero la próxima, deja encargarme de todo. Si simplemente respondemos cooperamos, no necesitamos de adultos. 
+--- Entiendo. Pero la próxima, deja encargarme de todo. Si simplemente respondemos cooperamos, no necesitamos de adultos.
 
 --- La próxima no tires un dron por berrinche, hermano mayor.
 
@@ -401,14 +405,3 @@ Manipulándolo vio que su placa madre sobresalía de su carcasa a falta de una t
 Sonó un pitido.
 
 --- Que no sirve, ¿Eh?, tarado.
-
-
-
-
-
-
-
-
-
-
-
