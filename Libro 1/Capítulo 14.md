@@ -400,7 +400,7 @@ Ambos volvieron a la casa, Eron se dirigió al taller.
 
 Elyra se retiró, mientras Eron se disponía a revisar el dichoso artefacto.
 
-Manipulándolo vio que su placa madre sobresalía de su carcasa a falta de una tuerca partida por la mitad en la caída. Agarró una nueva tuerca, la enroscó, y la giró hasta que sostuvo el contacto con el cable de corriente de la placa.
+Manipulándolo, vio que su placa madre sobresalía de su carcasa a falta de una tuerca partida por la mitad durante la caída. Agarró una nueva tuerca, la enroscó, y giró hasta que sostuvo el contacto con el cable de corriente de la placa.
 
 Sonó un pitido.
 

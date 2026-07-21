@@ -2,11 +2,11 @@
 
 **7:30 PM**
 
-El día prosiguió, dejando de lado aquel mundo llegando a otro
+El día prosiguió, llegando a otro mundo
 completamente diferente, pero para nada ajeno.
 
 El sonido de la llave fue como un recordatorio molesto: estaban en
-casa.\
+casa.
 La puerta se abrió y el olor se desbordó como una nube densa. Eron lo
 detestaba. El hedor lo impregnaba todo: alcohol, polvo, humedad y algo
 más... un olor indefinido, ácido, que podía ser basura fermentada o
