@@ -1,6 +1,6 @@
-**Capítulo 14 --- **Giro de tuerca**
+Capítulo 14 --- Giro de tuerca
 
-**11:00 AM --- Avvast - Aula K-02 - Actualidad**
+11:00 AM --- Avvast - Aula K-02 - Actualidad
 
 Los recuerdos había tomado un descanso fuera de su mente, era momento de asomarse nuevamente a una dura actualidad, la realidad del día a día que parecía jugar bromas con cada nuevo acontecimiento; principalmente, en lo que concernía al amor.
 
@@ -54,9 +54,7 @@ Sonó la señal para volver a clase, seguida de aquellas voces características 
 
 Se despidieron mientras Dahlia salía del aula. Eron siguió sonriente, con una mueca hibridante de alivio y duda. Pese a que no dijo mentira alguna, sabía que no era todo el lienzo completo lo que se veía.
 
------
-
-**12:00 PM --- Aula K-02**
+12:00 PM --- Aula K-02
 
 Los compañeros entraron al salón. El sumbido silente que había acompañado a la pareja se vió interrumpido por adolescentes carcajeando; el tufo de sudor puberto inundó el aula mientras todos tomaban asiento. Eron se sentó, buscando con la mirada a Korin para distraerse, sabiendo que su mente se ocuparía de reflexionar en lugar de atender la clase.
 
@@ -104,9 +102,7 @@ Eron volteó avergonzado, contemplando su mochila únicamente conteniendo una pl
 
 --- Igual...
 
------
-
-**2:00 PM --- Salida**
+2:00 PM --- Salida
 
 Eron acompañó a Korin a la salida, previo a buscar a Elyra. Este último se veía desanimado, cabizbajo.
 
@@ -120,7 +116,7 @@ Eron acompañó a Korin a la salida, previo a buscar a Elyra. Este último se ve
 
 --- Me ayuda, pero ni siquiera sé qué pedirle de ayuda para estudiar, me bloqueo cuando pienso en las tareas, me siento bien burro.
 
---- SI me dejas... te ayudo yo, así también aprendo mejor.
+--- Si me dejas... te ayudo yo, así también aprendo mejor.
 
 --- Hmmm... no creo que sea buena idea, me vas a odiar --- Replicó Korin
 
@@ -130,6 +126,8 @@ Eron acompañó a Korin a la salida, previo a buscar a Elyra. Este último se ve
 
 --- No necesitas exigirte tanto en eso, y si lo hace, yo le golpeo más fuerte.
 
+--- No mames, me va a golpear el triple cuando te vayas.
+
 Ambos rieron. Conversaron acerca de tantas cosas que ya no parecían preocupados por aquel cruel examen
 
 El padre de Korin llegó. Ambos se despidieron visiblemente aliviados.
@@ -138,7 +136,7 @@ El padre de Korin llegó. Ambos se despidieron visiblemente aliviados.
 
 --- Ojalá no me pongan peros. Te veo mañana.
 
-Ambos amigos se tomaron de la mano en un saludo cálido.
+Ambos amigos chocaron sus puños en un saludo cálido.
 
 A lo lejos se escucharon silvidos de voces muy conocidas.
 
@@ -146,31 +144,37 @@ A lo lejos se escucharon silvidos de voces muy conocidas.
 
 Korin se subió a su transporte, Eron volteó hacia las risas mientras los chicos se alejaban.
 
-*Siempre es lo mismo con este tipo y sus dos novios.*
+Siempre es lo mismo con este tipo y sus dos novios.
 
 Eron se dirigió al Aula de su hermana, pidiendo no cruzarse con nadie más ese día.
 
 Ría lo ve, camina a su lado.
 
----Te estoy saludando desde medio patio, deja de ignorarme.
+---Te estoy saludando desde medio patio, ¡deja de ignorarme!.
 
---- Oh, lo siento, no te ví para nada. --- DIjo Eron con la vista al frente.
+--- Oh, lo siento, no te ví para nada. --- Dijo Eron con la vista al frente.
 
-Ría hizo una mirada boba. Siguió acompañándolo.
+Ría hizo una mirada boba. Siguió acompañándolo. --- Es un idiota, ¿no? Siempre llamando la atención así.
 
---- Es un idiota, ¿no? Siempre llamando la atención así.
-
---- Ya no lo hace tan seguido. A veces pienso que es envidia.
+--- Ya no lo hace tan seguido. A veces pienso que es envidia, o inseguridad. Soy más alto.
 
 Ría rió al escucharlo.
 
---- O celos --- DIjo entre risas --- Típico bully enamorado de su bulleado en secreto, siempre se mete contigo cuando estás con Korin.
+---Y más flacucho. Tienes suerte de que no te haya hecho nada.
 
---- No lo sé... Lo ven indefenso,y supongo que siempre van a buscar de quién reírse-
+--- Si me acerca, haré así --- Eron empuja vacilonamente a Ría ---
+
+Ambos ríen.
+
+--- Creo que no va a cambiar mientras no le dén atención, a veces me pregunto si ese cliché de padres ausentes igual a niño problema es tan cierto. No creo haberlo vivido hasta ahora
+
+--- O tal vez, son celos --- Dijo Ría entre risas --- Típico bully enamorado de su bulleado en secreto, siempre se mete contigo cuando estás con Korin.
+
+--- No lo sé... Lo ven indefenso,y supongo que siempre van a buscar de quién reírse, aunque debería ser al revés.
 
 --- Solo por despedirse con cariño... qué triste su vida jajaja.
 
---- Aunque... así como son de estúpidos, ven a Korin como menos que ellos... No lo entiendo. Sé que solo es para molestar, pero me pregunto si ellos son consientes de lo idiotas que son en realidad, o si su estupidez es tal que genuinamente se creen inteligentes.
+--- jajaja sí, Aunque... así como son de estúpidos, ven a Korin como menos que ellos... No lo entiendo. Sé que solo es para molestar, pero me pregunto si ellos son conscientes de lo idiotas que son en realidad, o si su estupidez es tal que genuinamente se creen inteligentes.
 
 --- Supongo que depende de cada quién, al menos tú sabes que Korin es muy listo.
 
@@ -180,9 +184,7 @@ Ría tomó una pausa breve mientras lo veía.
 
 --- Creer en él, aunque seas el único.
 
----
-
-**3:00 PM --- Casa Eldrion: Taller**
+3:00 PM --- Casa Eldrion: Taller
 
 La tarde había avanzado, ambos hermanos caminaban con una mezcla de prisa y alivio.
 
@@ -244,7 +246,7 @@ Elyra abrió la puerta velozmente. Eron se acercó a la patrulla.
 
 Eron se quedó helado.
 
-*Por favor que no sea Papá*
+Por favor que no sea Papá
 
 --- ¿Cómo? ¿Qué tipo de incidente?
 
@@ -266,23 +268,23 @@ Entra a su cuarto, con el olor nauseabundo y desórden de décadas estorbando a 
 
 Vio a su padre, dormido, roncando con fuerza.
 
-*Menos mal*
+Menos mal
 
 --- HEY, Despierta. Vienen a hablar contigo.
 
-Erasen no respondía, seguía en sueño profundo
+Erasen no respondió, siguió en sueño profundo
 
 --- Cabrón, DESPÍERTA, es serio
 
 Erasen hacía murmullos suaves, no volteaba.
 
----Carajo...
+---Carajo...puta vida.
 
 Eron voltea al suelo para caminar hacia él, pisa accidentalmente una botella de mezcal, rompiéndola.
 
 Observa fijamente a Erasen, con rabia.
 
-*Muchas Gracias... Idiota*
+Muchas Gracias... Idiota
 
 Eron vuelve rápidamente a la entrada, ve a Elyra asumándose con sigilo hacia la puerta, oculta en las escaleras de los cuartos
 
@@ -298,9 +300,9 @@ Eron sale rápidamente.
 
 --- No... Pero pued-
 
---- Buenas tardes, tengo a mi madre al teléfono --- DIjo Elyra, interrumpiendo la conversación.
+--- Sí, tengo a mi madre al teléfono --- Dijo Elyra, interrumpiendo la conversación.
 
-*Mierda, ¿en serio la llamó?*
+Mierda, ¿en serio la llamó?
 
 --- Buenas tardes señora...
 
@@ -332,9 +334,7 @@ Uno de los hombres se le acercó.
 
 ---Oh... mierda...
 
----
-
-**4:00 PM --- Taller**
+4:00 PM --- Taller
 
 Eron estaba sentado, con Elyra de pie junto a él, y los uniformados examinando el Dron dañado.
 
@@ -342,7 +342,7 @@ Eron estaba sentado, con Elyra de pie junto a él, y los uniformados examinando 
 
 --- Solo será una multa de 10K UE. el dispositivo quedó inservible por la caída, pero no fue vandalismo.
 
-*Dios mío, en qué me metí*
+Dios mío, en qué me metí
 
 --- Entiendo, Permítame hablar con mi hijo por favor
 
@@ -362,7 +362,7 @@ Eron apretó los dientes, y presionó sus dedos con la carcasa del teléfono.
 
 --- Lo haré...
 
-*Nunca estás, siempre te vas, solo que ahora tienes la excusa perfecta para irte toda la semana.*
+Nunca estás, siempre te vas, solo que ahora tienes la excusa perfecta para irte toda la semana.
 
 --- Te veo pronto hijo...
 
@@ -382,8 +382,20 @@ Elyra lo ve con incredulidad.
 
 Eron cogió el artefacto con una forma pequeña de emoción
 
----
+--- Tengan mucho cuidado niños, este dispositivo es delicado, pero recuerden que es con el fin de protegerlos, no queremos que algún ladrón, o loco del nudo rojo invada propiedades.
 
+--- Si tienen dudas, comuníquenlo con los voceros de la facción. No queremos más incidentes. ¿Quedó claro niños? ---Dijo con asertividad el segundo oficial---
+
+---Sí, claro ofi-
+
+---¡ENTENDIDO OFICIAL!--- dice Elyra en una pose erguida militar
+Los agentes ríen. Se retiran.
+
+--- Eso no era necesario, ¿sabes?
+
+---Cállate, hacen su trabajo y tengo a un terrorista en potencia, no me van a llevar presa... y se ve agradable el oficial.
+
+---...Qué asco
 Ambos volvieron a la casa, Eron se dirigió al taller.
 
 --- ¿Por qué les pides eso? No necesitamos acumular basura. Papá ya ocupó esa vacante.
@@ -392,15 +404,15 @@ Ambos volvieron a la casa, Eron se dirigió al taller.
 
 --- Perdón, pero entré en pánico. No es que sea una muy buena señal el ver a una patrulla del órden acercándose.
 
---- Entiendo. Pero la próxima, deja encargarme de todo. Si simplemente respondemos cooperamos, no necesitamos de adultos.
+--- Entiendo. Pero la próxima, deja encargarme de todo. Si simplemente respondemos y cooperamos, no necesitamos de adultos.
 
---- La próxima no tires un dron por berrinche, hermano mayor.
+--- La próxima no tires un dron por berrinche, hermano mayor maduro.
 
 ---Okay miedosilla.
 
 Elyra se retiró, mientras Eron se disponía a revisar el dichoso artefacto.
 
-Manipulándolo, vio que su placa madre sobresalía de su carcasa a falta de una tuerca partida por la mitad durante la caída. Agarró una nueva tuerca, la enroscó, y giró hasta que sostuvo el contacto con el cable de corriente de la placa.
+Manipulándolo vio que su placa madre sobresalía de su carcasa a falta de una tuerca partida por la mitad después la caída. Agarró una nueva tuerca, la enroscó, y la giró hasta que sostuvo el contacto con el cable de corriente de la placa.
 
 Sonó un pitido.
 
