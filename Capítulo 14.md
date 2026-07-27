@@ -120,7 +120,7 @@ Eron acompañó a Korin a la salida, previo a buscar a Elyra. Este último se ve
 
 --- Me ayuda, pero ni siquiera sé qué pedirle de ayuda para estudiar, me bloqueo cuando pienso en las tareas, me siento bien burro.
 
---- SI me dejas... te ayudo yo, así también aprendo mejor.
+--- Si me dejas... te ayudo yo, así también aprendo mejor.
 
 --- Hmmm... no creo que sea buena idea, me vas a odiar --- Replicó Korin
 
@@ -130,6 +130,8 @@ Eron acompañó a Korin a la salida, previo a buscar a Elyra. Este último se ve
 
 --- No necesitas exigirte tanto en eso, y si lo hace, yo le golpeo más fuerte.
 
+--- No mames, me va a golpear el triple cuando te vayas.
+
 Ambos rieron. Conversaron acerca de tantas cosas que ya no parecían preocupados por aquel cruel examen
 
 El padre de Korin llegó. Ambos se despidieron visiblemente aliviados.
@@ -138,7 +140,7 @@ El padre de Korin llegó. Ambos se despidieron visiblemente aliviados.
 
 --- Ojalá no me pongan peros. Te veo mañana. 
 
-Ambos amigos se tomaron de la mano en un saludo cálido.
+Ambos amigos chocaron sus puños en un saludo cálido.
 
 A lo lejos se escucharon silvidos de voces muy conocidas.
 
@@ -152,24 +154,32 @@ Eron se dirigió al Aula de su hermana, pidiendo no cruzarse con nadie más ese 
 
 Ría lo ve, camina a su lado.
 
----Te estoy saludando desde medio patio, deja de ignorarme.
+---Te estoy saludando desde medio patio, ¡deja de ignorarme!.
 
---- Oh, lo siento, no te ví para nada. --- DIjo Eron con la vista al frente.
+--- Oh, lo siento, no te ví para nada. --- Dijo Eron con la vista al frente.
 
 Ría hizo una mirada boba. Siguió acompañándolo.
 --- Es un idiota, ¿no? Siempre llamando la atención así.
 
---- Ya no lo hace tan seguido. A veces pienso que es envidia.
+--- Ya no lo hace tan seguido. A veces pienso que es envidia, o inseguridad. Soy más alto.
 
 Ría rió al escucharlo.
 
---- O celos --- DIjo entre risas --- Típico bully enamorado de su bulleado en secreto, siempre se mete contigo cuando estás con Korin.
+---Y más flacucho. Tienes suerte de que no te haya hecho nada.
 
---- No lo sé... Lo ven indefenso,y supongo que siempre van a buscar de quién reírse-
+--- Si me acerca, haré así --- Eron empuja vacilonamente a Ría ---
+
+Ambos ríen. 
+
+--- Creo que no va a cambiar mientras no le dén atención, a veces me pregunto si ese cliché de padres ausentes igual a niño problema es tan cierto. No creo haberlo vivido hasta ahora
+
+--- O tal vez, son celos --- Dijo Ría entre risas --- Típico bully enamorado de su bulleado en secreto, siempre se mete contigo cuando estás con Korin.
+
+--- No lo sé... Lo ven indefenso,y supongo que siempre van a buscar de quién reírse, aunque debería ser al revés.
 
 --- Solo por despedirse con cariño... qué triste su vida jajaja.
 
---- Aunque... así como son de estúpidos, ven a Korin como menos que ellos... No lo entiendo. Sé que solo es para molestar, pero me pregunto si ellos son consientes de lo idiotas que son en realidad, o si su estupidez es tal que genuinamente se creen inteligentes.
+--- jajaja sí, Aunque... así como son de estúpidos, ven a Korin como menos que ellos... No lo entiendo. Sé que solo es para molestar, pero me pregunto si ellos son conscientes de lo idiotas que son en realidad, o si su estupidez es tal que genuinamente se creen inteligentes.
 
 --- Supongo que depende de cada quién, al menos tú sabes que Korin es muy listo.
 
@@ -268,13 +278,13 @@ Vio a su padre, dormido, roncando con fuerza.
 
 --- HEY, Despierta. Vienen a hablar contigo. 
 
-Erasen no respondía, seguía en sueño profundo
+Erasen no respondió, siguió en sueño profundo
 
 --- Cabrón, DESPÍERTA, es serio
 
 Erasen hacía murmullos suaves, no volteaba.
 
----Carajo...
+---Carajo...puta vida.
 
 Eron voltea al suelo para caminar hacia él, pisa accidentalmente una botella de mezcal, rompiéndola.
 
@@ -296,7 +306,7 @@ Eron sale rápidamente.
 
 --- No... Pero pued-
 
---- Buenas tardes, tengo a mi madre al teléfono --- DIjo Elyra, interrumpiendo la conversación.
+--- Sí, tengo a mi madre al teléfono --- Dijo Elyra, interrumpiendo la conversación.
 
 *Mierda, ¿en serio la llamó?*
 
@@ -379,6 +389,24 @@ Elyra lo ve con incredulidad.
 
 Eron cogió el artefacto con una forma pequeña de emoción
 
+--- Tengan mucho cuidado niños, este dispositivo es delicado, pero recuerden que es con el fin de protegerlos, no queremos que algún ladrón, o loco del nudo rojo invada propiedades.
+
+
+--- Si tienen dudas, comuníquenlo con los voceros de la facción. No queremos más incidentes. ¿Quedó claro niños? ---Dijo con asertividad el segundo oficial---
+
+
+---Sí, claro ofi-
+
+---¡ENTENDIDO OFICIAL!--- dice Elyra en una pose erguida militar
+---
+
+Los agentes ríen. Se retiran.
+
+--- Eso no era necesario, ¿sabes?
+
+---Cállate, hacen su trabajo y tengo a un terrorista en potencia, no me van a llevar presa... y se ve agradable el oficial.
+
+---...Qué asco
 ---
 
 Ambos volvieron a la casa, Eron se dirigió al taller.
@@ -389,15 +417,15 @@ Ambos volvieron a la casa, Eron se dirigió al taller.
 
 --- Perdón, pero entré en pánico. No es que sea una muy buena señal el ver a una patrulla del órden acercándose.
 
---- Entiendo. Pero la próxima, deja encargarme de todo. Si simplemente respondemos cooperamos, no necesitamos de adultos. 
+--- Entiendo. Pero la próxima, deja encargarme de todo. Si simplemente respondemos y cooperamos, no necesitamos de adultos. 
 
---- La próxima no tires un dron por berrinche, hermano mayor.
+--- La próxima no tires un dron por berrinche, hermano mayor maduro.
 
 ---Okay miedosilla.
 
 Elyra se retiró, mientras Eron se disponía a revisar el dichoso artefacto.
 
-Manipulándolo vio que su placa madre sobresalía de su carcasa a falta de una tuerca partida por la mitad en la caída. Agarró una nueva tuerca, la enroscó, y la giró hasta que sostuvo el contacto con el cable de corriente de la placa.
+Manipulándolo vio que su placa madre sobresalía de su carcasa a falta de una tuerca partida por la mitad después la caída. Agarró una nueva tuerca, la enroscó, y la giró hasta que sostuvo el contacto con el cable de corriente de la placa.
 
 Sonó un pitido.
 
