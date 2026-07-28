@@ -295,4 +295,33 @@ Responde con voz más tranquila
 
 10:00 Am, actualidad. 
 
----
+Eron terminó de secarse el cabello.
+
+Miró la bufanda doblada sobre la silla.
+
+Sonrió apenas.
+
+—Supongo que sí funcionó...
+
+Tomó su mochila y salió de casa
+
+
+Llegó a clase, y aunque tarde, entró sin miedo.
+
+Todos los alumnos, junto al profesor, colaboraron en un silencio sofocante al tiempo en que Eron apareció en el áula.
+
+Voltean a verlo, sin palabras.
+
+--- ¿Durmió bien Señorito Eldrion? 
+
+Eron asintió con ironía, caminó hacia el fondo del salón.
+
+Entre todas las cabezas silenciosas, una destacó con un color reluciente y cálido.
+
+Ría levantó la mano discretamente,no dijo nada.
+
+Sonrió de oreja a oreja, y apartó su mochila del asiento de al lado.
+
+Eron sonrió de vuelta.
+
+
