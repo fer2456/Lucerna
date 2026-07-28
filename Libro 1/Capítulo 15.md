@@ -316,7 +316,7 @@ Voltean a verlo, sin palabras.
 
 Eron asintió con ironía, caminó hacia el fondo del salón.
 
-Entre todas las cabezas silenciosas, una destacó con un color reluciente y cálido.
+Entre todas las cabezas silenciosas, solo una brillaba con un listón azúl.
 
 Ría levantó la mano discretamente,no dijo nada.
 
