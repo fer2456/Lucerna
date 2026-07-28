@@ -49,7 +49,7 @@ Elyra le habla también tras la puerta.
 
 --- ¡MAMÁ! --- gritó fastidiado
 
-Alyres rió con su hija.
+Alyrea rió con su hija.
 
 Los hijos Eldrion se dirigieron a la salida de su hogar.
 
@@ -66,7 +66,7 @@ Eron se la envuelve a regañadientes
 
 ---No jodas, un poco más y se acaba el año escolar sin nosotros.
 
-Los hermanos corrieron veloz mente por las calles, era hora de la entrada y la calle se inundaba de Vehículos y niños por todos lados, en dirección a su institución. 
+Los hermanos corrieron velozmente por las calles, era hora de la entrada y la calle se inundaba de Vehículos y niños por todos lados, en dirección a su institución. 
 
 *El Devos Rojo*
 
@@ -92,7 +92,7 @@ Toman un respiro y avanzan con la multitud
 
 ---Pues siempre has sido callado, a ti no te importa hacer amigos como a mí
 
----Eso crees tú. Pero te ayuda bsstante a varias cosas
+---Eso crees tú. Pero te ayuda bastante a varias cosas.
 
 En la multitud se acercan varias caras nuevas, con una expresión de incredulidad y felicidad. 
 
@@ -143,7 +143,7 @@ Llamada a Grupo K, pasen en grupo a su áula, Repito, Llamada a Grupo K, pasen e
 
 Eron entró en pánico, no podía distinguir a ningún bulto de estudiantes moviéndose. 
 
-Los segundos pasaban, el segundero estruendoso saturaba los oídos mientras el sudor innundaba su frente. 
+Los segundos pasaban, el segundero estruendoso saturaba los oídos mientras el sudor inundaba su frente. 
 
 Miraba desde atrás de la multitud a los millares de alumnos, en busca de algún movimiento útil.
 
