@@ -12,6 +12,10 @@ Eron:
 -Se lleva de manera utópica con Eiran, pero este cada vez empieza a ocuparse más, al ser el más avanzado en clase
 -Se lleva mejor con Elyra desde que su madre se ausentó por sus tratamientos y empleo
 
+Relaciones de Eron:
+
+- Conoció a Dahlia Tsuney un año antes de la historia actual.
+
 
 Escuela de Preparatoria Avvast:
 
